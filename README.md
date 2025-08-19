@@ -5,7 +5,7 @@
 -🔋 CONTENT CRATOR IN INSTAGRAM - FILM MAKER .
 - I am looking to collaborate with a community rich in knowledge 🔴
       🎯SOON !!!! FullStack dev 
-- 📫 How to reach me   DISCORD : rayane_not  |  WHATSAPP : 07 94 96 84 99  | INSTAGRAM : ler.rayane                          
+- 📫 How to reach me   DISCORD : rayane_not  |  WHATSAPP : 07 94 96 84 99  | INSTAGRAM : rayane_boudia                         
 
                                                                                                A.BOUDIA
 
