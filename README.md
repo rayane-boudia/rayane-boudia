@@ -4,7 +4,7 @@
    I am a Computer Science Student In USTOMB ORAN UNIVERSITY .
 -🔋 CONTENT CRATOR IN INSTAGRAM - FILM MAKER .
 - I am looking to collaborate with a community rich in knowledge 🔴
-      🎯SOON !!!! FullStack dev 
+      🎯SOON !!!! MOBILE APP dev 
 - 📫 How to reach me   DISCORD : rayane_not  |  WHATSAPP : 07 94 96 84 99  | INSTAGRAM : rayane_boudia                         
 
                                                                                                A.BOUDIA
